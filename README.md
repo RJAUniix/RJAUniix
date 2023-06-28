@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-It's Andreas, from Madagascar. ❤<br>
-A Developer & Content Creator always ready to offer you excellent and unique services. ✨🚀🔥
+It's <strong>Andréas</strong>, from <strong>Madagascar</strong>. ❤<br>
+A Developer & Content Creator always ready to offer you excellent and <strong>Unique</strong> services. ✨🚀🔥
